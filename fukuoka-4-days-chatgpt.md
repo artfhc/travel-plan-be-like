@@ -12,17 +12,14 @@
 |  | 11:00–15:00 | [櫛田神社](https://goo.gl/maps/ajUZywxrPco8aUqg6)、[博多町家民俗博物館](https://goo.gl/maps/99hRcGhs3b42)、[川端商店街](https://goo.gl/maps/YxtQYZ9mAwp) | 博多市中心 | 📷 打卡：神社鳥居＋商店街懷舊景 |
 |  | 17:00–19:00 | [屋台夜市美食](https://goo.gl/maps/j4qE4oEBD8z)、[一蘭拉麵本店](https://goo.gl/maps/Jv6sFjPh4D4iAoZr5) | 中洲／天神／長濱 | 🍜 必食：博多拉麵、燒雞串、關東煮 |
 |  | 19:00–21:00 | [博多聖誕市集・燈飾](https://goo.gl/maps/okgTWftvDJ22) | 博多站前廣場 | 📷 打卡：JR博多站光之街燈飾 |
-
 | **Day 2｜12/3（三）** | 09:00–11:30 | [大濠公園](https://goo.gl/maps/Mzv88eNuv6u) 散步 + [舞鶴公園](https://goo.gl/maps/B3ycZbn1LKt) 登城跡 | 大濠／舞鶴 | 📷 打卡：湖畔＋紅葉尾聲 |
 |  | 12:00–14:00 | 午餐＋移動 | [元祖博多天婦羅 ひらお](https://goo.gl/maps/LoYoMMVHPp22) | 在地名店，價錢合理 |
 |  | 14:30–17:00 | [福岡塔](https://goo.gl/maps/r8Kj3EzU29M2) + [百道海濱公園](https://goo.gl/maps/nrXPRA3PQms) | 百道 | 📷 打卡：塔上看日落／海邊長廊 |
 |  | 18:00–21:00 | 晚餐或市區夜景 | [Bills 福岡](https://goo.gl/maps/vzNR4E9EKCCzyM5A7)／天神 | 📷 打卡：夜景＋餐廳窗景 |
-
 | **Day 3｜12/4（四）** | 09:00–12:00 | [太宰府天滿宮](https://goo.gl/maps/RVRozS3PBDt) + [九州國立博物館](https://goo.gl/maps/mXBaNwCsSRy) | 太宰府 | 📷 打卡：鳥居＋紅葉 |
 |  | 12:00–13:00 | [梅枝餅 かさの家](https://goo.gl/maps/vRCNz5bwVxH2) 午餐 | 太宰府老街 | 🍡 招牌甜品 |
 |  | 14:00–17:00 | [LaLaport 福岡](https://goo.gl/maps/52prgWkzQ5bRrbWf8) 購物 + νGundam 打卡 | 竹下站步行9分鐘 | 📷 打卡：νGundam 立像 |
 |  | 18:00–21:00 | 晚餐／[天神聖誕市集](https://goo.gl/maps/Gk1LhyF4K5T2) | 天神市政府前廣場 | 🎄 打卡：歐陸攤位＋燈飾隧道 |
-
 | **Day 4｜12/5（五）** | 09:00–13:00 | 選擇性郊遊（[糸島 Palm Beach](https://goo.gl/maps/nLXJZ9s2XZK2)／[南藏院 臥佛](https://goo.gl/maps/v4PRPLkGiow)） | JR／巴士 | 📷 打卡：臥佛＋海岸線 |
 |  | 14:00–17:00 | 市區自由行 + 採購手信（[博多地下街](https://goo.gl/maps/h8L5qPFDYqH2)、Tenjin Core） | 博多 | 🛍 推薦：明太子、博多通りもん |
 |  | 17:00–20:00 | 最後晚餐 + 夜間散步 | [博多阪急百貨美食街](https://goo.gl/maps/okgTWftvDJ22) | 🍣 可買便當或甜品帶上飛機 |
