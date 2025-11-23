@@ -7,6 +7,10 @@
 | Hotel | LOTTE HOTEL WORLD, 240 Olympic-ro, Songpa District, Seoul |
 | Office | 708-4 Yeoksam-dong, Gangnam District, Seoul |
 
+**Directions:**
+- [Incheon Airport → Hotel (Google Maps)](https://www.google.com/maps/dir/Incheon+International+Airport/Lotte+Hotel+World,+240+Olympic-ro,+Songpa-gu,+Seoul)
+- [Hotel → Office (Google Maps)](https://www.google.com/maps/dir/Lotte+Hotel+World,+240+Olympic-ro,+Songpa-gu,+Seoul/708-4+Yeoksam-dong,+Gangnam-gu,+Seoul)
+
 ---
 
 ## Transportation to Lotte Hotel World
